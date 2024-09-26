@@ -27,6 +27,7 @@
 
 ## 📫 How to reach me:
 - Email: [realkhalilahmad@gmail.com](mailto:realkhalilahmad@gmail.com)
+- Linkedin: [Khalil Ahmad](https://www.linkedin.com/in/khalil-ahmad-19a2a5257/)
 
 ## 😄 Pronouns: 
 He/Him
